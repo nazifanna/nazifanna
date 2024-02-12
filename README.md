@@ -1,16 +1,21 @@
-### Hi there 👋
+# Halo World! 🌟
 
-<!--
-**nazifanna/nazifanna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hi all! I'm Nazifa Nur Amalina, seorang remaja yang sedang kepo oleh dunia AI, so i joined github. 
 
-Here are some ideas to get you started:
+## 😎 about my self 
+- **Musik:** 🎵 all in Taylor Swift 
+- **Medosos:** for insta @nazifanna_ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 🌈 recent experience
+- 🚀 Managed to get something that i'd always wanted, silver medal from AISEEF 2024
+- 📸 Mengabadikan moment.
+
+## 📚 Kutipan
+> "soon." -n
+
+## 🚀 link 
+- Insta:[https://l.instagram.com/?u=https%3A%2F%2Finstagram.com%2Fnazifanna_%3Figshid%3DMzRlODBiNWFlZA%253D%253D&e=AT2RzG9Kk6phBTB3fSPuc-xlpBMlutt8sOEUig3poNtMfyFYaATS6bJKm7yuJdkfj3dvrEmOH1ev77tg-cI6voAJxcmd_8kSIcxJwatEbL4e5NKmwpF-F04] 
+
+
+Let's get to know more! 🚀✨
+
